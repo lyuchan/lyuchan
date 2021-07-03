@@ -1,0 +1,6 @@
+- 嗨嗨大家好我是lyuchan在這裡會放一些自己做過的程式以及作品
+- 歡迎大家下載使用
+- 我相信你/妳一定比我更厲害
+- email:david12312330@gmail.com
+- DC:YT_綠寶石#6732
+- YT:https://www.youtube.com/channel/UCEjkbez05P4NR3x453tX5sA
