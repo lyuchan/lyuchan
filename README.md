@@ -4,3 +4,5 @@
 - email:david12312330@gmail.com
 - DC:YT_綠寶石#6732
 - YT:https://www.youtube.com/channel/UCEjkbez05P4NR3x453tX5sA
+- 重要大事:
+- 2021/7/3日空降github
