@@ -6,3 +6,4 @@
 - YT:https://www.youtube.com/channel/UCEjkbez05P4NR3x453tX5sA
 - 重要大事:
 - 2021/7/3日空降github
+--2021/11/26全國技藝競賽數位電子第七名
