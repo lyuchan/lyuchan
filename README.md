@@ -2,7 +2,7 @@
 - 歡迎大家下載使用
 - 我相信你/妳一定比我更厲害
 - email:david12312330@gmail.com
-- DC:YT_綠寶石#6732
+- DC:LyuChan_Wang#6732
 - YT:https://www.youtube.com/channel/UCEjkbez05P4NR3x453tX5sA
 - 重要大事:
 - 2021/7/3日空降github
